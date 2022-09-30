@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vujoa
+- 👋 Hi, I’m @Vujoa1
 - 🌱 I’m currently learning the basics in infromatik
 
 
